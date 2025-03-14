@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+![gato](https://c.tenor.com/XyWCSD5WNQQAAAAC/tenor.gif)
 <!--
 **dudas00937/dudas00937** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
